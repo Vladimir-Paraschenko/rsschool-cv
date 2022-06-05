@@ -1,6 +1,6 @@
 # Vladimir Paraschenko
 
-![DSC_32811 60](https://user-images.githubusercontent.com/106256892/172059371-b111522f-fde5-40a0-b7c3-04889db1b3cd.jpg)
+![DSC_32811 25](https://user-images.githubusercontent.com/106256892/172059515-a3d605b4-b657-4644-9292-01bff03ae997.jpg)
 
 rocknrollov@gmail.com
 
